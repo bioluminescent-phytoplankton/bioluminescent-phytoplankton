@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @bioluminescent-phytoplankton
+- 👀 I’m interested in sleep and eat.
+- 🌱 I’m currently learning HTML and just literally everything I guess.
